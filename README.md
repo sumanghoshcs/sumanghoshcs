@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sumansingle
+- 👋 Hi, I’m @SumanGhosh
 - 👀 I’m interested in ...IT
 - 🌱 I’m currently learning ...Graduation on computer Science
 - 💞️ I’m looking to collaborate on ...
