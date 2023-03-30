@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @SumanGhosh
 - 👀 I’m interested in ...IT
-- 🌱 I’m currently learning ...Graduation on computer Science
+- 🌱 I’m completed my graduation in(2022) computer Science
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...Mail:ghoshs91439@gmail.com
+- 📫 How to reach me ...Mail:sumanghoshcs@outlook.com
 
 <!---
 sumansingle/sumansingle is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
