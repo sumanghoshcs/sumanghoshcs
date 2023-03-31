@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sumanghoshcs@outlook.com**
 
-- 📄 Know about my experiences [https://sumansingle.github.io/resume/](https://sumansingle.github.io/resume/)
+- 📄 Know about my experiences [https://sumansingle.github.io/resume/](https://drive.google.com/file/d/1qgJQe-cMCWhVAM8rmEOvaeeulpWVgvtR/view?usp=drivesdk)
 
 - ⚡ Fun fact **I am Funny**
 
