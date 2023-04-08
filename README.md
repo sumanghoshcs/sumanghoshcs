@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sumanghoshcs@outlook.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qgJQe-cMCWhVAM8rmEOvaeeulpWVgvtR/view?usp=drivesdk](https://drive.google.com/file/d/1qgJQe-cMCWhVAM8rmEOvaeeulpWVgvtR/view?usp=drivesdk)
+- 📄 This is my Resume [https://drive.google.com/file/d/1UMEDzPQ1_NKEJBJ8F0tbQLXrcf21SHud/view?usp=sharing](https://drive.google.com/file/d/1UMEDzPQ1_NKEJBJ8F0tbQLXrcf21SHud/view?usp=sharing)
 
 - ⚡ Fun fact **I am Funny**
 
