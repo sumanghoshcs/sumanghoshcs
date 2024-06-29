@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sumanghoshcs@outlook.com**
 - 📄 This is my Resume [https://drive.google.com/file/d/1EFxij8Fw_5pSPb4-Cy_GGFrF_NeVBsEu/view?usp=sharing](https://drive.google.com/file/d/1EFxij8Fw_5pSPb4-Cy_GGFrF_NeVBsEu/view?usp=sharing)
-- 📄 This is my Portfolio Website [https://genuine-pasca-4a6757.netlify.app/)
+- 📄 This is my Portfolio Website [https://admirable-heliotrope-85765a.netlify.app)
 
 - ⚡ Fun fact **I am Funny**
 
